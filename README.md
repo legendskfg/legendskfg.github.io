@@ -1,0 +1,2 @@
+![Tatry](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hikemates.com%2Fblog%2Fvysoke-tatry-uz-mozno-nebudu-zadarmo-turisti-by-mali-platit-vstupne%2F&psig=AOvVaw3wX_UiXtEG9nFvpxDF29lk&ust=1718013251542000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLi-5ozn24YDFQAAAAAdAAAAABAE)
+![Alpy](https://www.google.com/url?sa=i&url=https%3A%2F%2Fsk.wikipedia.org%2Fwiki%2FAlpy&psig=AOvVaw1k2vO53Gqf6aTDBfDhv2eL&ust=1718481258071000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPCCqdfv24YDFQAAAAAdAAAAABAE)
